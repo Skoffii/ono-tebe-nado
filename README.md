@@ -1,1 +1,1 @@
-https://github.com/Skoffii/ono-tebe-nado
+https://github.com/Skoffii/ono-tebe-nado-ad
